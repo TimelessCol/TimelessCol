@@ -1,4 +1,6 @@
-## Hi there 👋
+## THE TIMELESS COLLECTION ⏳
+
+READ OUR [RENTRY](https://rentry.co/timelesscol) FOR OUR DNI/BYF + ALTER PAGES AND INFO!
 
 <!--
 **TimelessCol/TimelessCol** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
