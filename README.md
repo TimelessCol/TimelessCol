@@ -2,6 +2,9 @@
 
 READ OUR [RENTRY](https://rentry.co/timelesscol) FOR OUR DNI/BYF + ALTER PAGES AND INFO!
 
+![image](https://github.com/user-attachments/assets/44e8e057-ba36-4a9d-b425-8ca8796dd4dd)
+
+
 <!--
 **TimelessCol/TimelessCol** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
