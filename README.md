@@ -16,7 +16,7 @@ Crowns and boops are very appreciated! Please do not kiss. If the name of our po
 
 Sometimes we're active, sometimes we're AFK. Feel free to whisper, but we are perfectly fine with public chat!
 
-Please DNI if you are below 16.
+We are 21. If you are under 17, please be aware that while we may interact with you casually, we will not be close friends with you for your own safety. Take care of yourselves online.
 
 ![image](https://github.com/user-attachments/assets/44e8e057-ba36-4a9d-b425-8ca8796dd4dd)
 
