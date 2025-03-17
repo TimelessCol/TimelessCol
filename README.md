@@ -24,7 +24,7 @@ RULES:
 
 We also take art as payment for trades. If you go this route, we will likely ask you to draw an OC or something related to our fanfiction.
 
-No requesting NSFW ponies. Note: This does not mean no requesting NSFW fandoms. For example, requesting a pony of Kyu from Huniepop or Generica from Crush Crush is fine, but requesting an explicitly naked pony is not.
+No requesting NSFW ponies. Note: This does not mean no requesting NSFW fandoms. For example, requesting a pony of Kyu from Huniepop or Generica from Crush Crush is fine, but requesting an explicitly naked pony is not. Along with that, ponies with blood/gore/body horror are completely fine, as we have no issue with making that.
 
 Files/screenshots will only be given once you have shown proof that your pony/art has also been completed. WIPs during the process of creation are very appreciated, and we will send you them as well.
 
